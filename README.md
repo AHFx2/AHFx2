@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Imran Alam
+# 💫 Hi 👋, I'm Abdulaziz
 **A passionate Sofware Developer || Web || Desktop**
 
 
